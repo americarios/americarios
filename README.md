@@ -1,1 +1,1 @@
-- 👋 Olá meu nome é América Rios, tenho 32 anos, sou formada em Administração e cursando densenvolvimento web. 
+- 👋 Olá meu nome é América Rios estou cursando densenvolvimento web. 
